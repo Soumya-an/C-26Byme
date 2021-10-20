@@ -1,1 +1,1 @@
-# C-26Byme
+Butter chicken is slightly sweet and sour. Restaurant style Indian butter chicken has tomato and cashewnut based gravy garnished with butter and cream. Authentic butter chicken is a very high calorie dish yet very very tasty.
